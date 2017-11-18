@@ -1,1 +1,1 @@
-# First GLUG session
+# First GLUG session..
